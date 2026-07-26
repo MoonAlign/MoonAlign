@@ -43,4 +43,5 @@ Life Series, LPS, MLP, HermitCraft, Empires SMP, MHA, MHA Vigilantes, Monster Hi
 
 
 
+<img width="650" height="400" alt="download (5)" src="https://github.com/user-attachments/assets/e0b6e326-6cb4-414b-a2dc-ba68b5ebac26" />
 
