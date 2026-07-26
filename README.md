@@ -43,6 +43,6 @@ Life Series, LPS, MLP, HermitCraft, Empires SMP, MHA, MHA Vigilantes, Monster Hi
 
 
 
-<img width="100" height="100" alt="lps gif _ Tumblr" src="https://github.com/user-attachments/assets/af48b4d7-07d3-4878-a433-4d3f7ba4bfa5" />
+   <img width="100" height="100" alt="lps gif _ Tumblr" src="https://github.com/user-attachments/assets/af48b4d7-07d3-4878-a433-4d3f7ba4bfa5" />
 
 
