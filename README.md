@@ -17,7 +17,9 @@ Moon/Kira but my friends and siblings call me Kiri for short, I’m an artist, m
    🌙 Away : AFK or just away doing something 
 
 
-<img width="835" height="100" alt="цветочный разделитель гиф" src="https://github.com/user-attachments/assets/ba922da2-f675-4e03-910b-4aa23f5ea3d4" />
+<img width="650" height="400" alt="download (5)(1)" src="https://github.com/user-attachments/assets/d8383f22-19f9-45be-9d2c-ce78ee12a966" />
+
+
 
 
 
