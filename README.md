@@ -3,7 +3,7 @@
 
 ⟡ - About me! - ⊹
 
-Moon/Kira but my friends and siblings call me Kiri for short, I’m an artist, my pronouns are she/her I’m a female! 𝘚𝘩𝘪𝘯-𝘢𝘩 𝘬𝘪𝘯𝘯𝘪𝘦 <3 ɪᴢᴜᴋᴜ ᴋɪɴɴɪᴇ <3 20 𝐲𝐞𝐚𝐫𝐬 𝐨𝐥𝐝 ๑⋆𓂅ǂ𓍼 ꕤ﹅⊹ 𝘼𝘿𝙃𝘿˜”°•.˜”°• BDAY August 24th •°”˜.•°”˜| I am also taken by my wonderful boyfriend!
+Moon/Kira but my friends and siblings call me Kiri for short, I’m an artist, my pronouns are she/her I’m a female! 𝘚𝘩𝘪𝘯-𝘢𝘩 𝘬𝘪𝘯𝘯𝘪𝘦 <3 ɪᴢᴜᴋᴜ ᴋɪɴɴɪᴇ <3 20 𝐲𝐞𝐚𝐫𝐬 𝐨𝐥𝐝 ๑⋆𓂅ǂ𓍼 ꕤ﹅⊹ 𝘼𝘿𝙃𝘿˜”°•.˜”°• •°”˜.•°”˜| I am also taken by my wonderful boyfriend!
 
 
 
