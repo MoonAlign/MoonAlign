@@ -26,7 +26,7 @@ Moon/Kira but my friends and siblings call me Kiri for short, I’m an artist, m
    
 ⟡ - Pony Town - ⊹
 
-If you found me on pony town hello! Please do not copy, steal, claim, screenshot or repost my skins on Pinterest! THIS ALSO APPLIES TO GIFTS SKINS THAT I MADE FOR MY FRIENDS. Inspo is fine just asked first if you are copying me You will be BLOCKED, espically if I see you troll others, or is just a terrible person. Also If you cover me I will block you. But also Feel free to come up to say hi just make to read my dni's thank you!
+If you found me on pony town hello! Please do not copy, steal, claim, screenshot or repost my skins on Pinterest! THIS ALSO APPLIES TO GIFTS SKINS THAT I MADE FOR MY FRIENDS. Inspo is fine just asked first if you are copying me You will be BLOCKED, espically if I see you troll others, or is just a terrible person. Also If you cover me I will block you. But also Feel free to come up to say hi just make sure to read my dni's thank you!
 
 
 
